@@ -1,2 +1,0 @@
-# Purple_Hotel
-
